@@ -1,2 +1,2 @@
-BootMe.club Stresser Source Nulled by RootSec
-Leaked by https://blizzard-stresser.wtf
+BootMe.club Stresser Source Nulled by Legit1337
+Leaked by https://www.legit1337.cc
